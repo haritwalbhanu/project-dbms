@@ -1,0 +1,1 @@
+> I have full copyright for this project. Please do not copy this without my permission.
